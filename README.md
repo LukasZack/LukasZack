@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LukasZack
-- 👀 I’m interested in crypto and coding
+- 👀 I’m interested in space and coding
 - 🌱 I’m currently learning Java and Python
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me Lukasss.zack on instagram
